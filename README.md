@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Samanajaffery
-- 👀 I’m interested in 
+- 👀 I’m interested an Engineering and I'm intrested in a wide of topics,including software development,and technology trends.
 - 🌱 I’m currently learning machine learning and artificial intellegence to enhance my skills and broaden my understanding of emarging technologies.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
